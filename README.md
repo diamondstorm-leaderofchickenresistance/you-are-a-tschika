@@ -1,2 +1,3 @@
 # you-are-a-tschika
-SHH IT'S A FUCKING SECRET
+SHH IT'S A SECRET...
+but im working on it later, as this is low importance
